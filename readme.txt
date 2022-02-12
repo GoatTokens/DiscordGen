@@ -1,8 +1,6 @@
-I have a working discord token gen but its not for sale
-instead I sell HQ Cheap Discord Accounts Email verified 
-
 Telegram @GoatTokens
-
+I have a working discord token gen but its not for sale
+instead 
 Greatest of all tokens: 
     https://GoatTokens.sellix.io 
  Minimum order is only $0.70
