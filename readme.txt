@@ -7,3 +7,6 @@ Greatest of all tokens:
        Each HQ Token $0.07
 Tested and each do around 50 DMs!
 All come with name+PFP!
+
+
+GOATTOKENS.py
