@@ -1,3 +1,6 @@
+I have a working discord token gen but its not for sale
+instead I sell HQ Cheap Discord Accounts Email verified 
+
 Telegram @GoatTokens
 
 Greatest of all tokens: 
